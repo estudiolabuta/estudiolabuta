@@ -1,2 +1,0 @@
-# estudiolabuta
-Estudio Labuta
